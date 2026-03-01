@@ -1,1 +1,0 @@
-# SujanKhan_PPT_Assessment
